@@ -1,10 +1,12 @@
 - 👋 Hi, I’m @leiahsapp
-- 👀 I’m interested in blogging business& coding 
-- 🌱 I’m currently learning Google Javascript 
-- 💞️ I’m looking forward to collaborate on Instagram 
-- 📫 How to reach me helene.sobek@gmail.com @heleneleiah
-- 😄 Pronouns: 🧭astronaut pretty much as it looks 
-- ⚡ Fun fact: I like Events  music dinners 
+😎I am Intressted in Business coding AI 
+- 🌱 I’m currently learning about coding Javascript etc.
+🤝Im -looking forward to collaborate Instagram @heleneleiah or mail 
+- wish to connect on e- mail/ website
+- https//:dinnerpearls.se 
+-  helene.sobek@gmail.com 
+- 🙂Pronouns*️⃣pretty much as it looks 
+- ⚡fun fact;🪷Invite friends &Music 
 
 <!---
 leiahsapp/leiahsapp is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
