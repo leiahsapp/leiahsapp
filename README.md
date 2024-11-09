@@ -4,7 +4,7 @@
 - 💞️ I’m looking forward to collaborate on Instagram 
 - 📫 How to reach me helene.sobek@gmail.com @heleneleiah
 - 😄 Pronouns: 🧭astronaut pretty much as it looks 
-- ⚡ Fun fact: I like Jazz& rythm Music Event 
+- ⚡ Fun fact: I like Events  music dinners 
 
 <!---
 leiahsapp/leiahsapp is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
